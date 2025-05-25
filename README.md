@@ -1,9 +1,6 @@
 You can adopt a cute kitten here! Also. you can give the kitten a name by yourself!
 
-
- /\_/\  
-( o.o ) 
- > ^ <
+![image](https://github.com/user-attachments/assets/e6fa7450-9a17-47ce-a63b-d38ccacec5ba)
 
 
 
